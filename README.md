@@ -1,1 +1,0 @@
-# LGH-portfolio-github
